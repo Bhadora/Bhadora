@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Bhadora
 - 👀 I’m interested in Civil Engineering, Language, Content Creating,.......
 - 🌱 I’m currently learning Civil Engineering, Language, Content Creation Tools,.....
-- 💞️ I’m looking to collaborate on civil Engineering, Language, Conntent Creatiing
+- 💞️ I’m looking to collaborate on civil Engineering, Language, Content Creatiing
 - 📫 How to reach me Email: Bhador_a@yahoo.com
 - 😄 Pronouns: Aboly
 - ⚡ Fun fact: Dont Have
